@@ -2,7 +2,7 @@
 
 **Effective Date:** October 3, 2026  
 **Owner:** See May LLC  
-**Contact:** binyamkefelegn6969@gmail.com
+**Contact:** aviamain@gmail.com
 
 Welcome to **Allvia**. Your privacy is extremely important to us. This Privacy Policy explains how **See May LLC** ("we", "our", or "us") collects, uses, and protects your information when you use the Allvia mobile application on Android devices.
 
